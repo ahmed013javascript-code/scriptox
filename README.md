@@ -1,2 +1,2 @@
 # scriptox
-scriptox is a game that is the best
+scriptox is a game that would fight roblox 👌⚙️
